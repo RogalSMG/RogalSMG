@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RogalSMG
+- 👋 Hi, I’m Daniel
 - 👀 I’m interested in board games, puzzles, psychology and in general science.
 - 🌱 I’m currently learning Java
 
