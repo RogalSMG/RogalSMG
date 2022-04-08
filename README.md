@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Daniel
-- 
+
 - 👀 I’m interested in board games, puzzles, psychology and in general science. 
 - Besides, I'm swiming, snowboarding and trying play piano 😂
  
